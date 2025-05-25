@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jeronica-perry
+- 👋 Hi, I’m @jeronica-perry, the sprite of your affection.
 - 👀 I’m interested in ... developing, programming languages and IT systems cybersecurity protocols.
 - 🌱 I’m currently learning ... programming languages; IDEs
 - 💞️ I’m looking to collaborate on ... career advancing training and materials
